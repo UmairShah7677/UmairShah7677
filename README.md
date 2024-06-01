@@ -23,7 +23,7 @@ I'm Syed Muhammad Umair, an experienced IT professional with a strong background
 
 ### 📫 How to reach me:
 - Email: syedumairshah7677@gmail.com
-- LinkedIn: [Syed Muhammad Umair](https://www.linkedin.com/in/syed-muhammad-umair/)
+- LinkedIn: [Syed Muhammad Umair](https://www.linkedin.com/in/umairshah7677/)
 
 ### ⚡ Fun fact:
 - I have a knack for automating repetitive tasks to save time and increase productivity!
